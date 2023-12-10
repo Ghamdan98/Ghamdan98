@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Ghamdan alamery
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning free working
